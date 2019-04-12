@@ -1,3 +1,4 @@
+# Child Safey Policy #
 The Lebanon Public Libraries are dedicated to providing a welcoming environment that encourages children to visit the Library, attend programs, and use the Library collection and computers.Library staff are available to assist and support children in using the Library and its materials. For the purposes of this policy, children are defined as being under the age of 13.
 
 Library staff are not responsible for children who are left unattended at the library premises. Children under the age of 8 should 
